@@ -1,4 +1,4 @@
-# 
+# Gratuit ftx trading bot plugins pour Mac OS | Nouveau ftx trading bot plugins pour PC Windows. Avec ordres stop-loss et gestion des risques — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
